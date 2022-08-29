@@ -1,2 +1,2 @@
 # pensamento-computacional-heitor
-oi :)
+me da nota professor
